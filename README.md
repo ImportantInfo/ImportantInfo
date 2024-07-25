@@ -2,3 +2,6 @@
 https://x.com/Zpelli_79/status/1816332841892077865
 
 context: they harassed an actual real csa victim that went through therapy, also called a minor pedophile, and even justified minors being on 18+ PT server, they got involved with another callout from the past well that had docs that are now deleted by the minor aged victim due to fear. This part of the callout is more focused on the recent victim instead due to it being publicly shared around by hundreds of people and the information on this right now is recent and ongoing.
+
+# Anyways here is a bingo card version of their behavior in the past years.
+![8y5xpz](https://github.com/user-attachments/assets/2b0ff34a-d4f8-4e45-96dc-9689d178911d)
