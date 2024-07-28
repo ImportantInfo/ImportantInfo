@@ -5,3 +5,7 @@ context: they harassed an actual real csa victim that went through therapy, also
 
 # Anyways here is a bingo card version of their behavior in the past years.
 ![8y60z8](https://github.com/user-attachments/assets/7a64cf21-04d1-434c-813e-d5cd94bee9ce)
+
+# Bingo made by someone else witnessing the shitshow
+![GTaKmqyagAAOHfX](https://github.com/user-attachments/assets/d94148bd-4922-4423-b24e-b4c1c326f5f6)
+
