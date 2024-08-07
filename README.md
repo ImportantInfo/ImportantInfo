@@ -9,3 +9,5 @@ context: they harassed an actual real csa victim that went through therapy, also
 # Bingo made by someone else witnessing the shitshow
 ![GTaKmqyagAAOHfX](https://github.com/user-attachments/assets/d94148bd-4922-4423-b24e-b4c1c326f5f6)
 
+additional statement of the harassment: https://gist.github.com/crembruleeeeeee/0839da5a8959b38ad5165b513946544e
+![sJ0WMzJd1O0D](https://github.com/user-attachments/assets/b9ad27da-14a4-48ca-b8a0-79c5e1d7a8ef)
