@@ -12,3 +12,5 @@ context: they harassed an actual real csa victim that went through therapy, also
 additional statement of the harassment: https://gist.github.com/crembruleeeeeee/0839da5a8959b38ad5165b513946544e
 context: even those who knew him personally couldn't get in touch. its already 8th of August and there are still no updates.
 ![sJ0WMzJd1O0D](https://github.com/user-attachments/assets/b9ad27da-14a4-48ca-b8a0-79c5e1d7a8ef)
+
+the actual archived situation (yes someone had to archive this on a fucking website as well and you can find them by just searching their username in there): https://reset-the-clock-remastered-backup.tiiny.site/index.html
